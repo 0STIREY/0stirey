@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/90b4ce29-e34d-4697-9295-5d306787e768)
+![image](https://github.com/user-attachments/assets/23c17dc8-0373-49be-ab0e-41917f6fe600)
 
 #                      OST / FIREY / SPROUT :33 🍓
 #                       he / him , they / them! 
