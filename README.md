@@ -8,5 +8,5 @@
 
 *✛ i go by ✛he/ him . ,  am ftm and cupioromantic and omni i think.*
  *✛ " i am very timid . and i overthink quite quickly .*
-. . *thats all . . am too lazy . .
+. . *i also like interacting with others.. thats all stay safe !* . .
 
